@@ -1,0 +1,1 @@
+Esto es un programa que he diseñado y desarrollado yo. Como no tiene ninguna utilidad comercial, puedes utilizarlo todo lo que quieras a nivel privado, siempre que no lo difundas. Para difundirlo o patentarlo, me tienes que pedir a mí permiso primero.
